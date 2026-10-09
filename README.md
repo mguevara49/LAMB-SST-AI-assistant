@@ -1,1 +1,0 @@
-# LAMB-SST-AI-assistant
